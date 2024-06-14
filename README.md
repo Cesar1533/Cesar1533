@@ -4,4 +4,3 @@
 
 ## @cesar4silva
 
-![](https://media1.tenor.com/m/goE03uAAHRgAAAAd/neymar-jr.gif)
